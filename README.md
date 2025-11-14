@@ -1,4 +1,4 @@
-# -Volunteer-Led-Digital-Skills-for-Sustainable-Production-SDG-12-8-
+# 👨‍🎓 Volunteer-Led Digital Skills for Sustainable Production - SDG 8 and 12
 
 <img width="1344" height="768" alt="VDT SUSTAINABLE PRODUCTION" src="https://github.com/user-attachments/assets/06f17a80-3330-497d-88ce-4f449fc6ec1f" />
 
